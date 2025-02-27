@@ -1,1 +1,0 @@
-# Data-Craftsperson_Assignment_Incubyte
